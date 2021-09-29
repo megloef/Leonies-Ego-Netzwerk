@@ -1,1 +1,1 @@
-# Leonies-Eho-Netzwerk
+# Leonies-Ego-Netzwerk
